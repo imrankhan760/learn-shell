@@ -1,2 +1,4 @@
 # learn-shell first mkjna
-kham
+kjah
+mujjala
+smdal;;;lkas;lvaroabaj
